@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @okayama-shatoshi
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+
+- ** Digital Matter Theory - The Origin of Atomicals Era...!**
+
+
 - 📫 How to reach me ...  okayama.shatoshi@gmail.com
 
 <!---
