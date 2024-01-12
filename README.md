@@ -1,5 +1,5 @@
 
-- ** Digital Matter Theory - The Origin of Atomicals Era...!**
+-  Digital Matter Theory - The Origin of Atomicals Era...!
 
 
 - 📫 How to reach me ...  okayama.shatoshi@gmail.com
